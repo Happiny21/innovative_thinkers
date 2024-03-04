@@ -1,1 +1,0 @@
-# innovative_thinkers
